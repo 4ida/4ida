@@ -6,7 +6,7 @@ I manage servers + networks.
 I draw, do graphics design (branding)
 and more...
 
-I'm Aida, a 18 year old trans nb catgirl, who is kinda weeb loves anime, gaming, game modding, 
+I'm Aida, a 18 year old who loves anime, gaming, game modding, 
 reverse engineering, having servers, having private 4G LTE network, 
 making websites, videos, art, 3d stuff, animation and also pretty much entrepreneur.
 
